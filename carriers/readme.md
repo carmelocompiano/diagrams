@@ -1,1 +1,1 @@
-
+[https://htmlpreview.github.io/?https://github.com/carmelocompiano/diagrams/blob/main/carriers/logistics-platform.html](https://htmlpreview.github.io/?https://github.com/carmelocompiano/diagrams/blob/main/carriers/logistics-platform.html)
