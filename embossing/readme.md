@@ -1,1 +1,1 @@
-
+[https://htmlpreview.github.io/?https://github.com/carmelocompiano/diagrams/blob/main/embossing/prisma-embossing.html](https://htmlpreview.github.io/?https://github.com/carmelocompiano/diagrams/blob/main/embossing/prisma-embossing.html)  
