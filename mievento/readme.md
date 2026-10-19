@@ -1,1 +1,1 @@
-
+[https://htmlpreview.github.io/?https://github.com/carmelocompiano/diagrams/blob/main/mievento/mi-evento.html](https://htmlpreview.github.io/?https://github.com/carmelocompiano/diagrams/blob/main/mievento/mi-evento.html)
